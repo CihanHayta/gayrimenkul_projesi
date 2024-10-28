@@ -1,0 +1,1 @@
+# gayrimenkul_projesi
